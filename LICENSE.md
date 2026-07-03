@@ -1,4 +1,4 @@
-
+Experience anime vanguards like never before with anime vanguards Script best, the #1 Script. Includes auto-farm and god mode for unbeatable
 
 
 
